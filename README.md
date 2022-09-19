@@ -16,6 +16,9 @@ Deloitte Touche Tohmatsu Limited (2015-2016)
   
 Laboratorio clínico Labespe
   Analista de Sistema (2014-2015)
+  
+Mi linkedin: 
+https://www.linkedin.com/in/rosimarherrera/
 
 💬 Pregúntame lo que sea, soy feliz ayudando 😊;
 Leguajes y herramientas: 💻👇
